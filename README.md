@@ -1,2 +1,2 @@
 # Summative-Assessment_Dv200
-[Link to pdf](https://docs.google.com/document/d/1sk5wqRnGZQPK9kQdMHqBFJ4AaLjUW6R7zXoXKN9GBPA/edit?usp=sharing)
+[221205_Zanderbezuidenhout_DV200_Summative Assessment.pdf](https://github.com/user-attachments/files/15825209/221205_Zanderbezuidenhout_DV200_Summative.Assessment.pdf)
